@@ -1,0 +1,6 @@
+- Hello, I am Hurlicious, He/Him
+- I am a 16 year old beginner Programmer who is currently specializing in Python.
+- Current Projects: Mojiverse
+- Full-time student, decade-long veteran keyboard warrior
+- You can reach out to me quickly through my discord account, @hurlicious 
+- Striving to become a Discord developer!
