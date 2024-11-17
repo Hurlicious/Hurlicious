@@ -19,4 +19,4 @@ Feel free to reach out if you want to collaborate on something or just chat abou
 
 Email: businessgeorgedubach@gmail.com
 Discord: @hurlicious
-Portfolio: N/A (For Now
+Portfolio: N/A (For Now)
